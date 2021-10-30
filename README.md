@@ -1,6 +1,6 @@
 # Cryptobot API
   
-![image](https://www.seekpng.com/png/full/11-110410_bitcoin-header-bitcoin-logo-png-transparent.png)
+![image](https://miro.medium.com/max/1400/1*7tMIfJjBsJYQFJf4otPKwQ.png)
 
 ![image](https://www.constructconnect.com/hubfs/Blog%20Images%20and%20Media/Stock-Markets-Header-Graphic-New-Sep-03-2020-12-09-11-11-PM.jpg)
 ---
