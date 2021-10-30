@@ -2,7 +2,7 @@
   
 ![image](https://www.seekpng.com/png/full/11-110410_bitcoin-header-bitcoin-logo-png-transparent.png)
 
-
+![image](https://www.constructconnect.com/hubfs/Blog%20Images%20and%20Media/Stock-Markets-Header-Graphic-New-Sep-03-2020-12-09-11-11-PM.jpg)
 ---
 ## ⭐ Background Info 
 Lorem Ipsum is simply dummy text of the printing and typesetting industry. Lorem Ipsum has been the industry's standard dummy text ever since the 1500s, when an unknown printer took a galley of type and scrambled it to make a type specimen book. It has survived not only five centuries, but also the leap into electronic typesetting, remaining essentially unchanged. It was popularised in the 1960s with the release of Letraset sheets containing Lorem Ipsum passages, and more recently with desktop publishing software like Aldus PageMaker including versions of Lorem Ipsum.
